@@ -1,2 +1,2 @@
 # rehman-imad.github.io
-Hi! I'm Imad, an entrepreneur with multiple ventures and working on starting a tech startup.
+Hi! I'm Imad, a serial entrepreneur and results-driven senior executive with 18+ years of entrepreneurial and corporate leadership experience in the U.S., specializing in scaling startups, strategic market expansion, and operational excellence. Proven track record in launching and growing multimillion-dollar businesses across technology, e-commerce, fintech, and logistics, with expertise in AI-driven solutions and high-impact partnerships. 
